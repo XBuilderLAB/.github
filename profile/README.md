@@ -16,6 +16,4 @@ Open source is not the finish line — it is an invitation 🧩
 
 ---
 
-Come build with us.
-
 🚀 Let’s BUILD together!
